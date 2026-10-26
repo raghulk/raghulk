@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Raghul Krishnan, I live in Orlando, FL
+👋 Hi, I’m Raghul Krishnan, I live in Orlando, FL
